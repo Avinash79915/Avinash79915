@@ -11,6 +11,8 @@
 
 - 💬 Ask me about **Metaverse WEB 3.0**
 
+- 🙂 Married with Javascript 
+
 - 📫 How to reach me **avikushwaha121@gmail.com**
 
 - ⚡ Fun fact **JAVASCRIPT IS A WONDERFULL PROGRAMMING LANGUAGE TO LEARN AS WELL AS HORRIBLE**
