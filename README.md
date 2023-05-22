@@ -13,7 +13,7 @@
 
 - 🙂 Married with Javascript 
 
-- 🌍Check it out🙂 **avinashkushwah.com**
+- 🌍Check it out🙂 **avinashkushwaha.com**
 
 - 📫 How to reach me **avikushwaha121@gmail.com**
 
